@@ -1,4 +1,4 @@
-##  Olá! Eu sou a Re ✊🏾🏳️‍🌈
+##  Olá! Eu sou a Re 👩🏾‍💻
 Amante da tecnologia e com muita flexibilidade para mudanças, me considero alguém com facilidade de aprendizado e ânsia por aprender, 
 sejam coisas novas ou sejam coisas para aprimorar o que já tenho conhecimento.
 Como em nosso mundo e a própria tecnologia, estou sempre em constante evolução, com isso procuro sempre meu crescimento pessoal e profissional 
